@@ -8,7 +8,7 @@
 ˚ ⋆ ୨ KMFDM obsessed!! ☠
 ✧ ⚰ Pete is my everything - ` ' ☆
 • ˚ · - POSTAL + HATRED >> - ° · ୧ °࿐
--ˋˏ⋆˚⋆ ୨ sharing yume! ୧ ·.｡༄
+-ˋˏ⋆˚⋆ ୨ selective sharing yume! ୧ ·.｡༄
 ︵ ‿ ︵ ‿ ︵ ‿ ︵ ‿ ︵ ‿ ︵
 
 quick song rec!!
